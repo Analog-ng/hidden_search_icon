@@ -1,0 +1,1 @@
+# hidden_search_icon
